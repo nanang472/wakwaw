@@ -1,1 +1,3 @@
-# wakwaw
+# wakwawc
+adalah 
+insan yang berpunya
